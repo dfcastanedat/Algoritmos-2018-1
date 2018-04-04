@@ -1,3 +1,4 @@
 # Algoritmos-2018-1
 Laboratorios algoritmos 
-#Daniel Fernando Castañeda Torres
+🔥🔥😂😂👌👌Daniel Fernando Castañeda Torres😤😤👌👌🔥🔥
+🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆🦆
